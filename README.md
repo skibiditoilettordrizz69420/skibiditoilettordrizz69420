@@ -9,5 +9,8 @@
 # Tetora pony count: 32 Lol
 # YUMESHIP/TORDREN ATTACK Yes i know i missed up tords horns and darrens namepalte among other things but who gaf im not changing dat shit
 ![](https://i.pinimg.com/736x/2b/af/3f/2baf3f7338f1fed10fd7a6d94a6884fa.jpg)
+![](https://i.pinimg.com/736x/c2/c7/0a/c2c70ac2fb906835d9928a8bf154a1eb.jpg)
+![](https://i.pinimg.com/736x/7b/57/bf/7b57bf596e09f9916440ba011450f791.jpg)
+![](https://i.pinimg.com/736x/03/59/f0/0359f0006219ad007cbcddf81e296b5d.jpg)
 ![](https://64.media.tumblr.com/64493d203e457074fa9b6066b5cf28c5/851a1ef7d7001340-c9/s640x960/3edca9626ff74f1988c801a57e8d5cdbe184ce6d.gifv)
 
